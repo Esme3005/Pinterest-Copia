@@ -16,5 +16,5 @@ Este proyecto es una copía de la interfaz de inicio de pinterest creado con Htm
 ### Contacto 👩🏻‍💻📞
 
 **WhatsApp:** +52 7491148***
-**Instagram** @esmesita30
+**Instagram** @esme.blossom.xo
 
